@@ -1,2 +1,3 @@
-# O que que ele disse
-ronaldo
+# AHHHHHHHHHHHHHHHHHHHHHHH
+RONALDO
+dash fc 26
